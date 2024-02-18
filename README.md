@@ -1,2 +1,7 @@
-i have a scp foundation special interest so if you like the scp foundation too, please int w me, it makes me happy
-(you dont have to, its just smth that i would prefer and appreciate ^^)
+my discord; jackbrite <sup>(i do not support adminbright nor usually use jack bright as a character/make fan content for the character, having the character's name as a username does no harm)</sup>
+
+roblox; st_bn
+
+twitter; damieniguess
+
+anything else; probably on my carrd, if not, ask me
