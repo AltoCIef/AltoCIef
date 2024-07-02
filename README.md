@@ -1,3 +1,9 @@
+# key
+sleeping and/or away status = afk or busy
+busy = dni or, well.. busy
+looking for chat = int (i might be awkward lol)
+looking for roleplay = feel free to roleplay w me if we're (our skins) from the same fandom, just no ocs please ^^
+
 # damien
 i assume youre from ponytown, in which, im always open to c+h (cuddle+hide) and int (interact), but please avoid like, booping me or something for too long because it gets really awkward afterwards, also, please dont kiss me, i know its just a game but id rather not do that because im sensitive asf when it comes to stuff like that (sorry)
 
