@@ -1,7 +1,10 @@
 # key
 sleeping and/or away status = afk or busy
+
 busy = dni or, well.. busy
+
 looking for chat = int (i might be awkward lol)
+
 looking for roleplay = feel free to roleplay w me if we're (our skins) from the same fandom, just no ocs please ^^
 
 # damien
