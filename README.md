@@ -1,3 +1,5 @@
+keep in mind that i probably wont reply fast because i get anxious whenever i talk to people i dont know that well
+
 # key
 sleeping and/or away status = afk or busy
 
