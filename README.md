@@ -45,7 +45,7 @@ ponytown status key;
    the image above is just a filler image
 </h6>
 <p align="center">
-   cuddles and hides are always welcome !!!
+   cuddles and hides are always welcome !!! (even if im busy)
    <br>
    <br>i rarely ever roleplay because i havent done it in like
 <br>2 or so years, but ask if you wanna rp with me if
