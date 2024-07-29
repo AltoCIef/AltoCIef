@@ -33,5 +33,6 @@ tumblr; [damieni](https://damieni.tumblr.com/)
      𝖆𝖇𝖔𝖚𝖙 𝖒𝖊
 </h2>
 <p align="center">
-   damien - autism, adhd, osdd-1b, anxiety, compulsive liar (sorry) -
+   damien
+   <br>autism, adhd, osdd-1b, anxiety, compulsive liar (sorry) -
 </p>
