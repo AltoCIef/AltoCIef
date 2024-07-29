@@ -1,38 +1,63 @@
-keep in mind that i probably wont reply fast because i get anxious whenever i talk to people i dont know that well
-
-# key
-sleeping and/or away status = afk or busy
-
-busy = dni or, well.. busy
-
-looking for chat = int (i might be awkward lol)
-
-looking for roleplay = feel free to roleplay w me if we're (our skins) from the same fandom, just no ocs please ^^
-
-# damien
-i assume youre from ponytown, in which, im always open to c+h (cuddle+hide) and int (interact), but please avoid like, booping me or something for too long because it gets really awkward afterwards, also, please dont kiss me, i know its just a game but id rather not do that because im sensitive asf when it comes to stuff like that (sorry)
-
-if you *arent* from ponytown, however, then hello, i dont actually have a use for this other than to have it linked to my discord and be my ponytown bio
-
-back to those people who came from ponytown; **please please please** interact if you like half life (any au, parody, etc.) or scp, i love that stuff so much i could literally talk about it all day
-
-# links
-discord; chainshotguns
-
-tumblr; [damieni](https://damieni.tumblr.com/)
-
-# stamp collection
-![image](https://github.com/damienig/damienig/assets/127046677/d2926c56-8d90-42da-a3cd-cb94d40bf583) ![image](https://github.com/damienig/damienig/assets/127046677/31779cf9-fa54-43bd-a407-e162c96d63ca) ![image](https://github.com/damienig/damienig/assets/127046677/c3d28e6f-3dd2-406f-8cb8-9938304eab65) ![image](https://github.com/damienig/damienig/assets/127046677/a305a1ce-fd73-4c4c-a14b-10de65147fff) ![image](https://github.com/damienig/damienig/assets/127046677/73f15e76-919b-47be-b84b-c0351bae5055) ![image](https://github.com/damienig/damienig/assets/127046677/6af5d478-88f2-4a22-a61e-ad62508e2589) ![image](https://github.com/damienig/damienig/assets/127046677/2eae6225-909a-4e24-888d-f7f6181d2bee) ![image](https://github.com/damienig/damienig/assets/127046677/3731a1e2-8ec4-423c-99bc-1457d138f38b)
-
-# testing out stuff, ignore this !!!
 <p align="center">
-    <img width="300" src="https://i.postimg.cc/3NSJKzR4/benreyplushpng.png" alt="benrey">
+<img width="700" src="https://files.catbox.moe/1dkkur.png" alt="div">
 </p>
-
+<p align="center">
+ponytown status key;
+<br>away=afk
+<br>busy=most likey wont respond to anything
+<br>looking for chat=int !!!
+</p>
+                
+***
+                
+<p align="center">
+<img width="300" src="https://i.postimg.cc/3NSJKzR4/benreyplushpng.png" alt="benrey">
+ </p>
+                
 <h2 align="center">
-     𝖆𝖇𝖔𝖚𝖙 𝖒𝖊
+𝖆𝖇𝖔𝖚𝖙 𝖒𝖊
 </h2>
 <p align="center">
    damien
-   <br>autism, adhd, osdd-1b, anxiety, compulsive liar (sorry) -
+   <br>autism, adhd, osdd-1b, anxiety, compulsive liar (sorry)
+    <br>
+   <br>special interests;
+<br>scp foundation, half life, portal
+    <br>
+    <br>if you want to talk to me, feel free to, i just don't
+<br> want to have any more friends than i already have
+    <br> so try to keep the conversation short /lh
+<br>+
+<br>believe it or not, it actually makes my day
+<br>whenever someone does that, even if it's just
+<br>small talk ^^
+</p>
+<p align="center">
+   <img width="600" src="https://64.media.tumblr.com/9d442bd1d2ca26add6477eec9e96c724/6ba7b765c60690bb-88/s1280x1920/c0d942d02aff2f9d95f1de4acb374d9aa024195d.pnj" alt="div">
+</p>
+<p align="center">
+   <img width="300" src="https://64.media.tumblr.com/b9aad61b05140eb6ca687107c880b15e/e5a0ef7972042c81-3d/s640x960/fcb6610d6848441a7d0ae595406b6c5203f5734e.png" alt="snark">
+</p>
+<h2 align="center">
+     𝖕𝖔𝖓𝖞𝖙𝖔𝖜𝖓 𝖎𝖓𝖋𝖔
+</h2>
+<h6 align="center">
+   the image above is just a filler image
+</h6>
+<p align="center">
+   cuddles and hides are always welcome !!!
+   <br>
+   <br>i rarely ever roleplay because i havent done it in like
+<br>2 or so years, but ask if you wanna rp with me if
+<br> you want ^^
+<br>
+<br> im usually afk so your best chance to catch my
+<br> attention is by whispering me
+<br> 
+<br>please dni if im on the 18+ server and youre a
+<br>minor, not only is it against the pt rules but it
+<br>makes me extremely uncomfortable knowing you're
+<br>in an adult space, thanks
+<p align="center">
+   <img width="700" src="https://files.catbox.moe/o4xu5w.png" alt="div">
 </p>
