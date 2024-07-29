@@ -26,5 +26,12 @@ tumblr; [damieni](https://damieni.tumblr.com/)
 
 # testing out stuff, ignore this !!!
 <p align="center">
-    whats up
+    <img width="300" src="https://i.postimg.cc/3NSJKzR4/benreyplushpng.png" alt="benrey">
+</p>
+
+<h2 align="center">
+     𝖆𝖇𝖔𝖚𝖙 𝖒𝖊
+</h2>
+<p align="center">
+   damien - 
 </p>
