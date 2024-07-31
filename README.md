@@ -1,15 +1,16 @@
+**ponytown status key;**
+
+away=afk
+
+busy=most likey wont respond to anything
+
+looking for chat=int !!!
+
+***
+
 <p align="center">
 <img width="700" src="https://files.catbox.moe/1dkkur.png" alt="div">
 </p>
-<p align="center">
-ponytown status key;
-<br>away=afk
-<br>busy=most likey wont respond to anything
-<br>looking for chat=int !!!
-</p>
-                
-***
-                
 <p align="center">
 <img width="300" src="https://i.postimg.cc/3NSJKzR4/benreyplushpng.png" alt="benrey">
  </p>
@@ -61,3 +62,11 @@ ponytown status key;
 <p align="center">
    <img width="700" src="https://files.catbox.moe/o4xu5w.png" alt="div">
 </p>
+
+***
+
+discord; scpfandation
+
+steam; [damieni](https://steamcommunity.com/id/damieni/)
+
+xbox; damieniguess371
