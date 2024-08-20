@@ -21,7 +21,7 @@ looking for chat=int !!!
 <p align="center">
    damien
    <br>autism, adhd, osdd-1b, anxiety, compulsive liar (sorry)
-<br>intp, leo
+<br>intp, leo, 6w5
     <br>
    <br>special interests;
 <br>scp foundation, half life, portal, postal
@@ -29,7 +29,6 @@ looking for chat=int !!!
     <br>if you want to talk to me, feel free to, i dont really
 <br> have anyone else to talk to other than my bf who
     <br>isnt really all that into ponytown as much as i am lol
-<br>
 <br>
 <br>i (probably) act exactly how you think i do
 </p>
@@ -46,7 +45,8 @@ looking for chat=int !!!
    the image above is just a filler image
 </h6>
 <p align="center">
-   cuddles and hides are always welcome !!! (even if im busy)
+   cuddle only if friend but you can hide behind me
+<br>whenever you want ^^
    <br>
    <br>i rarely ever roleplay because i havent done it in like
 <br>2 or so years, but ask if you wanna rp with me if
