@@ -21,17 +21,17 @@ looking for chat=int !!!
 <p align="center">
    damien
    <br>autism, adhd, osdd-1b, anxiety, compulsive liar (sorry)
+<br>intp, leo
     <br>
    <br>special interests;
-<br>scp foundation, half life, portal
+<br>scp foundation, half life, portal, postal
     <br>
-    <br>if you want to talk to me, feel free to, i just don't
-<br> want to have any more friends than i already have
-    <br> so try to keep the conversation short /lh
-<br>+
-<br>believe it or not, it actually makes my day
-<br>whenever someone does that, even if it's just
-<br>small talk ^^
+    <br>if you want to talk to me, feel free to, i dont really
+<br> have anyone else to talk to other than my bf who
+    <br>isnt really all that into ponytown as much as i am lol
+<br>
+<br>
+<br>i (probably) act exactly how you think i do
 </p>
 <p align="center">
    <img width="600" src="https://64.media.tumblr.com/9d442bd1d2ca26add6477eec9e96c724/6ba7b765c60690bb-88/s1280x1920/c0d942d02aff2f9d95f1de4acb374d9aa024195d.pnj" alt="div">
@@ -53,12 +53,17 @@ looking for chat=int !!!
 <br> you want ^^
 <br>
 <br> im usually afk so your best chance to catch my
-<br> attention is by whispering me
+<br> attention is by whispering me and/or waiting
+<br> for me to get back online by sitting next to me
+<br> and just waiting
 <br> 
-<br>please dni if im on the 18+ server and youre a
-<br>minor, not only is it against the pt rules but it
-<br>makes me extremely uncomfortable knowing you're
-<br>in an adult space, thanks
+<br>please dni if youre any of these;
+<br>proshipper (they make me uncomfortable)
+<br>transphobic
+<br>neo-nazi
+<br>factkin of anyone problematic
+<br>one of my bf's exes (all of them are abusive and/or are
+<br>awful people)
 <p align="center">
    <img width="700" src="https://files.catbox.moe/o4xu5w.png" alt="div">
 </p>
