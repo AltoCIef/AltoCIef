@@ -62,8 +62,8 @@ looking for chat=int !!!
 <br>transphobic
 <br>neo-nazi
 <br>factkin of anyone problematic
-<br>one of my bf's exes (all of them are abusive and/or are
-<br>awful people)
+<br>one of my bf's exes (all of them are abusive and/or
+<br>are awful people)
 <p align="center">
    <img width="700" src="https://files.catbox.moe/o4xu5w.png" alt="div">
 </p>
