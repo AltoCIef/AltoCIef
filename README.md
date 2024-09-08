@@ -27,8 +27,8 @@ looking for chat=int !!!
 <br>scp foundation, half life, portal, postal
     <br>
     <br>if you want to talk to me, feel free to, i dont really
-<br> have anyone else to talk to other than my bsf who
-    <br>isnt really all that into ponytown as much as i am lol
+<br> have anyone else to talk to because i have no
+    <br>friends lmao
 <br>
 <br>im extremely socially anxious so if you want to
 <br>talk to me, please talk first to me, i def am
@@ -47,7 +47,7 @@ looking for chat=int !!!
    the image above is just a filler image
 </h6>
 <p align="center">
-   cuddle only if friend but you can hide behind me
+   cuddle and hide behind me
 <br>whenever you want ^^
    <br>
    <br>i rarely ever roleplay because i havent done it in like
