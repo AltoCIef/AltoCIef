@@ -58,6 +58,11 @@ looking for chat=int !!!
 <br> attention is by whispering me and/or waiting
 <br> for me to get back online by sitting next to me
 <br> and just waiting
+<br>
+<br> i probably will whisper you a 👑 if i really
+<br> like your skin or youre a cosplay of a
+<br> character from a fandom i know and i usually
+<br> never see
 <br> 
 <br>please dni if youre any of these;
 <br>proshipper (they make me uncomfortable)
