@@ -1,6 +1,7 @@
 **important stuff**
 
-https://discord.gg/TXAdRTDC <--- my discord server if you wanna hangout or anything (it has nobody in it rn except for me and my alt acc)
+scp, portal, and half life fans please int
+(im not hyperfixated on cyberpunk that much anymore but cyberpunk 2077 fans please int too)
 
 im not overstating the social anxiety thing; ii cant hold a conversation for longer than 10 minutes, so just be prepared for that
 ###### if you tell me youre aware of that then ill be much more unlikely to feel overwhelmed and paranoid mid-conversation, jsyk 😭
