@@ -1,5 +1,7 @@
 **important stuff**
 
+https://discord.gg/TXAdRTDC <--- my discord server if you wanna hangout or smth idk im lonely
+
 i give myself a strict bedtime of 10 pm (est) (22:00 for non-americans) just because i wanna wake up early so you probably wont see me until like 4 or 5 am at the earliest, if youre lucky you will see me at like 2 am because i passed out really early or smth
 
 away=afk
