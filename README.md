@@ -4,11 +4,8 @@ https://discord.gg/TXAdRTDC <--- my discord server if you wanna hangout or smth 
 
 i give myself a strict bedtime of 10 pm (est) (22:00 for non-americans) just because i wanna wake up early so you probably wont see me until like 4 or 5 am at the earliest, if youre lucky you will see me at like 2 am because i passed out really early or smth
 
-away=afk
-
-busy=most likey wont respond to anything
-
-looking for chat=int !!!
+when i say i have bad social anxiety, dont take that as me acting like "oh hee hee im so shy" ii literally cannot hold a conversation for longer than 10 minutes, so just be prepared for that
+###### if you tell me youre aware of that then ill be much more unlikely to feel overwhelmed and paranoid mid-conversation, jsyk 😭
 
 ***
 
