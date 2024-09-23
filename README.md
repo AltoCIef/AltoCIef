@@ -3,8 +3,7 @@
 - scp, portal, and half life fans please int
 (im not hyperfixated on cyberpunk that much anymore but cyberpunk 2077 fans please int too)
 
-- im not overstating the social anxiety thing; ii cant hold a conversation for longer than 10 minutes, so just be prepared for that
-###### if you tell me youre aware of that then ill be much more unlikely to feel overwhelmed and paranoid mid-conversation, jsyk 😭
+- please be friends with me if you want to be, im very desperate for friends and at this point ill literally do anything to stop being lonely 😭 /hyp
 
 ***
 
@@ -29,10 +28,6 @@
     <br>if you want to talk to me, feel free to, i dont really
 <br> have anyone else to talk to because i have no
     <br>friends lmao
-<br>
-<br>im extremely socially anxious so if you want to
-<br>talk to me, please talk first to me, i def am
-<br>not gonna talk first because im mentally ill
 </p>
 <p align="center">
    <img width="600" src="https://64.media.tumblr.com/9d442bd1d2ca26add6477eec9e96c724/6ba7b765c60690bb-88/s1280x1920/c0d942d02aff2f9d95f1de4acb374d9aa024195d.pnj" alt="div">
