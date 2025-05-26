@@ -2,5 +2,5 @@
 <img width="300" src="https://i.pinimg.com/1200x/1b/2a/93/1b2a93e29acf062e94319c2f95b01c47.jpg" alt="love">
 </p>
 <p align="center">
-<a href="https://damien.crd.co">carrd</a>
-<a href="https://discord.gg/UcQ5Twb6">scp discord server</a>
+<a href="https://doctorclef.carrd.co">carrd</a>
+<a href="https://discord.gg/uXG7Ezhv">scp discord server</a>
