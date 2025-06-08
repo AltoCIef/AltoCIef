@@ -3,4 +3,4 @@
 </p>
 <p align="center">
 <a href="https://doctorclef.carrd.co">carrd</a>
-<a href="https://discord.gg/uXG7Ezhv">scp discord server</a>
+<a href="https://discord.gg/Gy9GdwAxbz">scp discord server</a>
