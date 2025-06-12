@@ -8,7 +8,7 @@
 <p align="center">
 <img width="15" src="https://static-00.iconduck.com/assets.00/help-question-chat-bubble-rectangle-icon-2048x2048-9hgcfbe4.png" alt="int"> interact please
 <br>
-<img width="25" src="https://static.vecteezy.com/system/resources/previews/019/899/719/non_2x/simple-moon-icon-png.png" alt="rp"> whisper to interact, usually offtab
+<img width="20" src="https://static.vecteezy.com/system/resources/previews/019/899/719/non_2x/simple-moon-icon-png.png" alt="rp"> whisper to interact, usually offtab
 <br>
 <img width="15" src="https://upload.wikimedia.org/wikipedia/commons/d/df/Traffic_Sign_GR_-_KOK_2009_-_R-7.svg" alt="busy"> afk, probably won't respond until way later
 <br>
