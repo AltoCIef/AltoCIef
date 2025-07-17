@@ -3,7 +3,7 @@
 </p>
 <p align="center">
 <a href="https://glassdraki.carrd.co">carrd</a>
-<a href="https://discord.gg/Gy9GdwAxbz">scp discord server</a>
+<a href="https://discord.gg/YQcBUCeS">scp discord server</a>
 </p>
 <p align="center">
 <img width="15" src="https://static-00.iconduck.com/assets.00/help-question-chat-bubble-rectangle-icon-2048x2048-9hgcfbe4.png" alt="int"> interact please
