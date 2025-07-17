@@ -1,4 +1,8 @@
 <p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Baumans&size=30&pause=1000&color=F7F7F7&background=000000&vCenter=true&repeat=false&width=600&height=60&lines=%3EWELCOME%2C+USER%2C+TO+THE+SCP+FOUNDATION." alt="Typing SVG" /></a>
+<br>
+<a href="https://git.io/typing-svg"><img src="https://komarev.com/ghpvc/?username=your-github-username&label=Personnel&color=red&style=plastic" alt="Typing SVG" /></a>
+<br>
 <img width="300" src="https://64.media.tumblr.com/4a57c91d98481aba845038a8f4f9078f/cb931cb59668244a-b6/s1280x1920/0998f7e1c896b590eaad6cced700b37d7cdf02a3.jpg" alt="unfinishedbusiness">
 </p>
 <p align="center">
