@@ -6,7 +6,7 @@
 <a href="https://discord.gg/YQcBUCeS">scp discord server</a>
 </p>
 <p align="center">
-<img width="15" src="https://static-00.iconduck.com/assets.00/help-question-chat-bubble-rectangle-icon-2048x2048-9hgcfbe4.png" alt="int"> interact please
+<img width="15" src="https://cdn-icons-png.flaticon.com/512/10014/10014617.png" alt="int"> interact please
 <br>
 <img width="20" src="https://static.vecteezy.com/system/resources/previews/019/899/719/non_2x/simple-moon-icon-png.png" alt="rp"> whisper to interact, usually offtab
 <br>
