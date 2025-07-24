@@ -7,7 +7,7 @@
 </p>
 <p align="center">
 <a href="https://glassdraki.carrd.co">carrd</a>
-<a href="https://discord.gg/YQcBUCeS">scp discord server</a>
+<a href="https://discord.gg/xBrGcfmx">scp discord server</a>
 </p>
 <p align="center">
 <img width="15" src="https://cdn-icons-png.flaticon.com/512/10014/10014617.png" alt="int"> interact please
@@ -19,4 +19,6 @@
 <img width="15" src="https://www.pngall.com/wp-content/uploads/14/Green-Circle-PNG-Cutout.png" alt="online"> feel free to interact, will usually respond quickly
 <br>
 <img width="20" src="https://cdn-icons-png.flaticon.com/512/5198/5198216.png" alt="rp"> i never have this on but if i do, feel free to rp w me, fandom only
+<br> --------------------------------
+<br> i am a dr bright introject, despite this, i do not use the character, i am, however, okay with people using him .
 
