@@ -6,7 +6,7 @@
 <img width="300" src="https://64.media.tumblr.com/4a57c91d98481aba845038a8f4f9078f/cb931cb59668244a-b6/s1280x1920/0998f7e1c896b590eaad6cced700b37d7cdf02a3.jpg" alt="unfinishedbusiness">
 </p>
 <p align="center">
-<a href="https://glassdraki.carrd.co">carrd</a>
+<a href="https://kon.drr.ac/">carrd</a>
 <a href="https://discord.gg/AQ2HRZCM">scp discord server</a>
 </p>
 <p align="center">
