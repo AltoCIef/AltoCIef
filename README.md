@@ -20,5 +20,8 @@
 <br>
 <img width="20" src="https://cdn-icons-png.flaticon.com/512/5198/5198216.png" alt="rp"> i never have this on but if i do, feel free to rp w me, fandom only
 <br> --------------------------------
-<br> i am a dr bright introject, despite this, i do not use the character, i am, however, okay with other people using him .
+<br> i LOVE scp. please int if you like scp its literally my favourite thing in the entire world
+<br> 
+<br> interests; tf2, rdr2, scp, half life, postal, portal, cyberpunk 2077, slime rancher, stardew valley, pinky and pepper forever, breaking bad
+<br> about me; he/him, ask for my name since my preference switches up a lot, white, gay, uhhh. thats all the important stuff probably
 
