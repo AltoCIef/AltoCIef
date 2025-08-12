@@ -7,7 +7,7 @@
 </p>
 <p align="center">
 <a href="https://glassdraki.carrd.co">carrd</a>
-<a href="https://discord.gg/xBrGcfmx">scp discord server</a>
+<a href="https://discord.gg/AQ2HRZCM">scp discord server</a>
 </p>
 <p align="center">
 <img width="15" src="https://cdn-icons-png.flaticon.com/512/10014/10014617.png" alt="int"> interact please
